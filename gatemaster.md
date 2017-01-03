@@ -36,7 +36,7 @@ Addressing any usability / design issues to ensure that traffic will convert wel
 In month three we start to create and update the content that we have planned in the first phase according to the research and analysis. This will include new and modified pages, articles, photographs and video in the target languages and region. This will also include initial promotion of content where relevant (social media, blogs, backlinks from relevant sites).
 
 # Cost
-Price for this project would be **£1200 per month.** Should you wish to continue after the 3 months, I would suggest a considerably reduced budget - what I recommend here is an intensive effort to kick start the project.  
+Price for this project would be **Â£1200 per month.** Should you wish to continue after the 3 months, I would suggest a considerably reduced budget - what I recommend here is an intensive effort to kick start the project.  
   
   
 ---
